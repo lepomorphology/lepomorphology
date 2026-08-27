@@ -17,3 +17,4 @@
 <div align="center"> <img width="1280" height="160" alt="Image" src="https://github.com/user-attachments/assets/d8786944-f7e1-4702-a06d-691ec31c47ee" />
 
 <p align="center"> <sub> leporidae is the biological family of mammals that includes all rabbits and hares + in biology, morphology is the study of the size, shape, and structure of living organisms and their specific parts. </sub>
+<p align="center"> <sub> my sona is a bunny girl and the scientists working on BBI had to practice morphology. just in case people wonder 'what the hell is that username and how is it related to a harley yumeship' </sub>
